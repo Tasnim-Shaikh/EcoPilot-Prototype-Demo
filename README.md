@@ -2,4 +2,4 @@
 **EcoPilot Prototype Demonstration Video**
 
 
-https://drive.google.com/file/d/1yw5GNO9SSnLCLlG3PNc70Fk6hMPDB-8H/view?usp=drive_link
+https://drive.google.com/file/d/1vsCA1WC1yWBW2eHpT57iIPCe_kvv2XKn/view?usp=drive_link
